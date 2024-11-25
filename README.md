@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **saatviks3723@gmail.com**
 
-- 📄 Check out my resume ([Click to see my resume!](https://docs.google.com/document/d/1Ld6iTalf_QqKO0ib94jubqYrxg_397zgH2fuo34454w/edit?usp=sharing))
+- 📄 Check out my resume ([Click to see my resume!](https://docs.google.com/document/d/1e9EchzAIjv7aqqH5sU71N-O3EczTa_iKAXWJOMlDjNk/edit?usp=sharing))
 
 - ⚡ Fun fact **Looking to break the record for overhead press at my school gym!**
 
